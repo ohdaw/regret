@@ -1,1 +1,1 @@
-# regret
+🔗 https://shame.rip/
