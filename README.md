@@ -1,1 +1,1 @@
-🔗 https://shame.rip/
+🔗 https://regret.shame.rip/
